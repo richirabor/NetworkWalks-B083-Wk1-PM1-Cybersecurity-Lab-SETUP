@@ -1,1 +1,1 @@
-# NetworkWalks-Richard-Irabor-B083-Wk1-PM1-Cybersecurity-Lab-SETUP
+# Cybersecurity-Lab-SETUP
