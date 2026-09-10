@@ -200,7 +200,7 @@ Irabor Richard Ehis
 
 Cybersecurity Internship B083
 
-LinkedIn: https://www.linkedin.com/in/richard-ehis-irabor/
+LinkedIn: https://www.linkedin.com/in/richard-ehis-irabor-46b8899b/
 
 ---
 
